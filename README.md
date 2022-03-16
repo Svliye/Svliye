@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Svliye
+- 👀 I’m interested in learning how to use blender
+- 🌱 how to use blinder
+- 💞️ I’m looking for help
+- 📫 Discord : Svliye#6666
